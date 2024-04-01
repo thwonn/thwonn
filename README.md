@@ -1,10 +1,10 @@
-- 👋 JUDGEMENT!
+- 👋 THY END IS NOW!
 - 👀 Always watching
-- 🌱 I’m currently learning how to eat you
+- 🌱 I’m currently ominously consuming you
 - 💞️ I’m looking to collaborate on large group autodefenestration
-- 📫 How to reach me: don't even think about it. my arms are longer than yours
+- 📫 How to reach me: don't try. my arms are longer than yours
 - 😄 Pronouns: ƛ̓ (must be used with ergative syntax)
-- ⚡ Fun fact: thy punishment... is death!
+- ⚡ Fun fact: thy punishment... is DEATH!
 
 <!---
 thwonn/thwonn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
