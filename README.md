@@ -1,4 +1,4 @@
-- 👋 THY END IS NOW!
+- 👋 Thy end is now
 - 👀 Always watching
 - 🌱 I’m currently ominously consuming you
 - 💞️ I’m looking to collaborate on large group autodefenestration
